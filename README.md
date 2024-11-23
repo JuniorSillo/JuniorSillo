@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I'm Max (aka Binary Wizard) 💻 Passionate Software Developer | IT Professional | Aspiring Entrepreneur
+👋 Hi, I'm THEE Binary Wizard 💻 Passionate Software Developer | IT Professional | Aspiring Entrepreneur
 
 
 # 💻 Tech Stack:
